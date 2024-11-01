@@ -10,3 +10,10 @@ Large office REITs include Alexandria Real Estate Properties, Inc (NYSE: ARE), B
 
 Types of REIT Stocks – #2: Industrial 
 Industrial REITs own and manage properties that are used for manufacturing, production, storage and distribution of goods. Such properties include factories, distribution centers, warehouses and e-commerce fulfillment centers. Generally, these industrial properties are located outside of cities because their operations require a lot of space.
+
+Types of REIT Stocks – #3: Retail 
+
+Retail REITs own and manage retail properties, and rent the retail space to tenants. Most retail REITs choose to specialize in a specific type of retail property. For instance, some retail REITs own shopping malls, while others own single-tenant properties. Yet another may own outlet centers or grocery stores.
+
+The retail REIT sector is relatively large, containing 39 publicly traded REITs. The following three REITs each focus on a different type of retail property: Simon Property Group (NYSE: SPG) features malls, Realty Income Corporation (NYSE: O) owns single-tenant retail properties and Acadia Realty Trust (NYSE: AKR) invests in shopping centers.
+
