@@ -17,3 +17,8 @@ Retail REITs own and manage retail properties, and rent the retail space to tena
 
 The retail REIT sector is relatively large, containing 39 publicly traded REITs. The following three REITs each focus on a different type of retail property: Simon Property Group (NYSE: SPG) features malls, Realty Income Corporation (NYSE: O) owns single-tenant retail properties and Acadia Realty Trust (NYSE: AKR) invests in shopping centers.
 
+Types of REIT Stocks – #4: Residential 
+Residential REITs own and operate various types of living spaces including apartment buildings, single-family homes, manufactured homes and student housing. Oftentimes, residential REITs focus on property types, but can also subdivide their specialization into geographical markets or the demographic of potential tenants.
+
+The following residential REITs each specialize in different types of properties: Bluerock Residential Growth REIT (AMEX: BRG) focuses on apartments, Front Yard Residential Corporation (NYSE: RESI) rents out single-family homes and Sun Communities, Inc. (NYSE: SUI) features manufactured homes.
+
